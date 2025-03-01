@@ -1,6 +1,6 @@
-- Call me Kenji/Maxie or Vee, any prns (prefer she/her/it)
+- Call me Kenji/Maxie or Rochas, any prns (prefer she/he/it)
 - In alot of fandoms
-- .shrimpbowl on Discord
-- .twistedvee on TikTok
-- Vee-Vlog1 on Tumblr
+- jamiezfav on Discord
+- buildermonceo on TikTok
+- Rochas-313 on Tumblr
 - Fun fact: i'm cool.
