@@ -1,6 +1,10 @@
-- Call me Kenji/Maxie or Rochas, any prns (prefer she/he/it)
-- In alot of fandoms
-- jamiezfav on Discord
+- Call me Kenji/Maxie or Den, any prns (prefer she/he/it)
+- In alot of fandoms; mostly roblox stuff
+- pizzadeliveryy on Discord
 - buildermonceo on TikTok
 - Rochas-313 on Tumblr
-- Fun fact: i'm cool.
+- tw01souls on Twitter
+- Fun fact: i'm cool. RAHH/RecallaHollowheart fans PLEASE int + moot if possible <3
+- ihazafacelulz, 4amanda4, Seildirectory, Rochas313, brandonworks ★
+- Note: please please ask b4 adding me on discord btw...
+- M, M, B, C, R, A, S, D ♥ you know who you are ~! /pos
